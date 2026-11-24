@@ -1,0 +1,1 @@
+# konum-zili-indir
